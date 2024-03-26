@@ -1,0 +1,9 @@
+Alright, let's dive into the concept of cherry-picking using the world of Chrono Trigger as our guide. Imagine you're playing Chrono Trigger, an epic adventure through time, where every action and decision can lead to different outcomes.
+
+Cherry-picking, in this context, is like going through your Chrono Trigger journey and only talking about the battles you won effortlessly, completely ignoring those times you got wiped because you forgot to stock up on potions or didn't level up enough. You're selecting only the good parts to brag about to your friends, leaving out the losses that paint a more accurate picture of your gaming skills.
+
+This selective recounting doesn't give a full or fair representation of your abilities or the game's challenge. It's misleading, whether you're doing it to boost your ego or to convince someone else that the game is easier or harder than it actually is.
+
+In real-life discussions or arguments, cherry-picking is when someone chooses only the evidence that supports their point of view while ignoring anything that contradicts it. Just like selectively mentioning only your victories in Chrono Trigger creates a skewed perception of your gaming prowess, cherry-picking data or facts in an argument can make a position seem stronger than it really is. 
+
+However, just as a well-rounded Chrono Trigger player acknowledges both their victories and defeats, a robust argument considers all relevant information, not just the parts that support one side. This approach ensures a more accurate, honest, and comprehensive understanding of the topic at hand, whether discussing video game strategies or debating real-world issues.
